@@ -1,1 +1,0 @@
-# satyam_jdqsi
